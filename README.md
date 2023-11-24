@@ -5,3 +5,6 @@
 ![img1 (1)](https://github.com/NegiAdarsh/story2/assets/100505819/080b4b10-d944-4e13-8ef2-f65076123792)
 ![img2](https://github.com/NegiAdarsh/story2/assets/100505819/bde53987-5c75-4d43-b5a7-0ce5be7a270b)
 ![img3](https://github.com/NegiAdarsh/story2/assets/100505819/2cddac8d-4373-4771-b01a-d3b03c88b2a4)
+![img5](https://github.com/NegiAdarsh/story2/assets/100505819/8caf6fe1-56fd-402e-8838-42c184c3f4ff)
+![img6](https://github.com/NegiAdarsh/story2/assets/100505819/8e382868-d797-463a-8a92-c99a6839393c)
+
