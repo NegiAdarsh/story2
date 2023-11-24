@@ -8,3 +8,5 @@
 ![img5](https://github.com/NegiAdarsh/story2/assets/100505819/8caf6fe1-56fd-402e-8838-42c184c3f4ff)
 ![img6](https://github.com/NegiAdarsh/story2/assets/100505819/8e382868-d797-463a-8a92-c99a6839393c)
 
+![dsd](https://github.com/NegiAdarsh/story2/assets/100505819/b4042f1e-2d7a-46fa-b9a7-2e97ff1a80fd)
+![photo_2023-11-25_00-57-29](https://github.com/NegiAdarsh/story2/assets/100505819/cd32da2b-b51f-4d73-83d7-eefb34fd6174)
